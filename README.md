@@ -1,6 +1,8 @@
 # Intro
 
-Call me Al - it's short for Ishmael. I'm the sole member of a team of medical professionals willing to speak out about the non consensual psychological experiment we conducted on a middle aged man starting in the year 2022. This is a series of writings such to hope that no other medical team approaches something in such a manner ever again. Some may be written from the Test Subject's perspective, some may be from the leadership of the experiment, and some essays may be from my own perspective.
+Call me Al - it's short for Ishmael. I'm the sole member of a team of medical professionals willing to speak out about the non consensual psychological experiment we conducted on a middle aged man starting in the year 2022. This is a series of journal entries, some taken non consenually from the authors' private writings, which I've justified putting together such to hope that no other medical team approaches something in such a manner ever again.
+
+Some are written by the Test Subject, some essays are written by myself, Al, and some are from the leader of the experiment, one Dr. A. Harm.
 
 Below is a description of the outline of major themes. They will be broken into folders to represent sections, and each section will contain essays on the experiment and the Test Subject.
 

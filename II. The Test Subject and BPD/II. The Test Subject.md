@@ -1,0 +1,3 @@
+# The Test Subject on the Test Subject and BPD
+
+NOTES: The Test Subject should provide an intake / history of their personal history and identification with the symptoms of BPD. They should tell their story while occasionally drawing contrast to their present behavior in the experiment to draw on the idea that the experiment itself is inflaming if not causing the BPD itself in the Test Subject's recorded behavior. The Test Subject should reflect lightly at the end of being aware of this during the experiment, but not knowing how to directly confront it due to wanting to ruin the experiment, kind of like someone who goes under cover in one of those movies that slowly becomes _In Too Deep_, so to speak, but with mental illness and not gangsterism.

@@ -1,6 +1,6 @@
 # Dr. A. Harm on Non Consenual Dreams
 
-"To sleep, perchance to dream" - therefore, if a test subject who likens themselves to Hamlet falls asleep, they've given us consent to _join_ their dreams, not _force_ them to have dreams against a free will that can't be qualified while they are asleep!
+Shakespeare's _Hamlet_ offers an axiom to build off: "To sleep, perchance to dream" - therefore, if a test subject who likens themselves to Hamlet falls asleep, they've given us consent to _join_ their dreams, not _force_ them to have dreams against a free will that can't be qualified while they are asleep!
 
 (Note to self: double check the above with the lawyers.)
 

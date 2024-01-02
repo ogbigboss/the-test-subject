@@ -1,0 +1,3 @@
+# The Test Subject's Epilogue
+
+NOTES:  The "conclusions" should differ from each perspective such to leave the reader asking what actually happened, without being definitive. From the Test Subject's POV, he got the experimenters to "run away and hide." As an "anti hero", this was his most hopeful goal, seeking a defeat of ego and not anything else. He can no longer feel any idea of the experiment's continuation and has returned to his normative life, being a computer programmer somewhere and paying down his debts slowly before oblivion, his or the earth's, comes to take place - whichever first. The first sentence could be osmething like "You're goddamn right I got these fuckers to run away and hide. Took them long enough."

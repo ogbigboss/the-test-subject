@@ -1,0 +1,3 @@
+# Ishmael's Epilogue
+
+NOTE: Ishmael's ending should make the reader question what actually happened without actually invalidating the Test Subject's point of view. Ishmael declares gratitude in medical ethics prevailing over discord: the Test Subject was made aware of the happenings, compensated for his career being permanently destroyed, and the research's well heeled founders take to lobbying congress to make sure a law is passed preventing a lack of consent from embarassing them ever again. Ishmael is happy that medical ethics allowed for the situation to meet the best possible ending for all parties without allowing the greater public to know about what happened here.

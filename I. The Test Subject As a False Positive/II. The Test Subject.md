@@ -34,7 +34,7 @@ You're goddamn right I did this shit on purpose.
 
 What did the doctors think when I kept saying I was "entraptertaining" them? I'm guessing some of them got it, but what do I know - I'm just making up a fiction as far as I'm concerned.
 
-The fuck am I, some kind of George Orwell reading _The War of the Worlds_ on a radio broadcast where the audience actually believes what I'm saying?
+The fuck am I, some kind of Orson Welles reading _The War of the Worlds_ on a radio broadcast where the audience actually believes what I'm saying?
 
 That said, I never thought they'd keep this up for over a few months, but now we're getting close to two years.
 

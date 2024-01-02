@@ -1,6 +1,6 @@
 # Dr. Harm's Epilogue
 
-NOTE: Dr. Harm should do the same, forcing the reader to question what actually happened without technically invalidating either Ishmael or the Test Subject's point of view on conclusions. Dr. Harm is grateful that the experiment is allowed to continue, though it's goals have changed. The funders of the experiment seek to find a way to continue to treat the lesser thans - Ishmaels, Test Subjects, and to an extent and by his own admission Dr. Harms - as nothign more than a societal petri dish.
+NOTE: Dr. Harm should do the same, forcing the reader to question what actually happened without technically invalidating either Ishmael or the Test Subject's point of view on conclusions. Dr. Harm is grateful that the experiment is allowed to continue, though it's goals - and Test Subjects - have changed. The funders of the experiment seek to find a way to continue to treat the lesser thans - Ishmaels, Test Subjects, and to an extent and by his own admission Dr. Harms - as nothign more than a societal petri dish.
 
 The reader should see that if this is possible, it should be equally possible that both Ishmael and the Test Subject were telling the truth, but that they were deceived.
 

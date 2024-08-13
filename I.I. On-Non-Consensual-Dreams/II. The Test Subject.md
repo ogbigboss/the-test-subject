@@ -26,6 +26,6 @@ Why have I held back? Because some of these things are awkward as fuck. Not my t
 
 It's made my sleep worse, for whatever it's worth. Refreshed, I do not feel.
 
-I ended up buying ear plugs. I use the ear plugs, I don't have any dreams. That said, now I always have an itch in my ear. Will it lead to an infection? Will I sue for harm based on an ear infection that I only have due to a bunch of idiots forcing me to have dreams for fun in an excuse of science, like a bunch of neighborhood kids who took a set of walkie talkies too far?
+~~I ended up buying ear plugs. I use the ear plugs, I don't have any dreams. That said, now I always have an itch in my ear. Will it lead to an infection?~~ Will I sue for harm based on ~~an ear infection that I only have due to~~ a bunch of idiots forcing me to have dreams for fun in an excuse of science, like a bunch of neighborhood kids who took a set of walkie talkies too far?
 
 At least I have the knowledge that my actual dreams are way cooler than the lame ones these idiots come up for me. Do lab rats feel the same way about their exercise wheels vs. running in the wild?

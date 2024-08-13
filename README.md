@@ -6,6 +6,8 @@ So these two things come to a head, or always were in the background unbeknownst
 
 So, in a world where we've growingly become a privately-owned-cyber-borg, and the authority concept historically relies on deceit as an advantage against those it seeks to control, who wins when the fame of the entertainment industry, a historically new concept in it's current form, claims a greater ascertation of the truth vs the traditional authority concept which seeks to control both the famous and non famous? You know, I never had Tom Cruise's haircut from _Minority Report_, funny enough. OK, maybe one time, but it was a mistake, I fell asleep in front of the barber and I just said cut it short.
 
+Oh, and something about types of Borderline Personality Disorder being bred from the need for authority as a nurturing source and structure interfering with authority not always managing the value of the nurturing vs. maintaining of authority, or, power. Or, something, idk. I don't get much sleep these days. I was a better writer when I was allowed to sleep, that's for sure.
+
 # NOTE: The below is a previous outline. It needs to be reworked
 
 # Intro

@@ -8,6 +8,8 @@ So, in a world where we've growingly become a privately-owned-cyber-borg, and th
 
 Oh, and something about types of Borderline Personality Disorder being bred from the need for authority as a nurturing source and structure interfering with authority not always managing the value of the nurturing vs. maintaining of authority, or, power. Or, something, idk. I don't get much sleep these days. I was a better writer when I was allowed to sleep, that's for sure.
 
+Oh, and look, I'll absolutely write a section where the Test Subject is finally reduced to a near psychotic episode and has to beg the hired help of famous people / news media / weird CIA led side of this to stop sleep torturing them amidst a NY State Bar attorney disciplinary hearing near the end, but maybe we can make it more fictional than not, yeah? Please let me sleep. Just 6 hours at least. And stop it with the noise that wakes me up on purpose, just own up to what you're doing and keep the dream going if you're gonna do it. But maybe let me sleep. 6 hours at least. Oh god, the harm-or, the lack of non scripted hum-or / talent.
+
 # NOTE: The below is a previous outline. It needs to be reworked
 
 # Intro
